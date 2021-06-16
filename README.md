@@ -30,3 +30,7 @@ v1.0
 
 v1.0 - 16-06-2021 [Released]
 <li>EA with main function</li>
+
+https://t.me/fxtradingcaonguyenhkgroup
+
+
